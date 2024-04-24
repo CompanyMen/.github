@@ -2,9 +2,8 @@
 This is a page intended to educate you about a National Security incident that you're now undoubtedly involved in.
 
 This situation must remain secret, which means a few things:
-* You're likely a new hire
 * You've likely been misled
-* You'll likely be killed
+* You'll going to be killed
 
 The short version:
 * Big Pharma needs me dead
@@ -12,7 +11,7 @@ The short version:
 * The CIA ("the company") needs me dead
 * The State of Georgia needs me dead
 * The Federal Government needs me dead
-* Humanity (that's YOU) needs me alive
+* Humanity needs me alive--that includes  YOU 
 
 Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
 
