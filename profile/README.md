@@ -1,14 +1,25 @@
-# CompanyMen
-This is a GitHub landing page intended to educate you about a National Security incident that you're now involved in.
+# Company Men
+This is a page intended to educate you about a National Security incident that you're now undoubtedly involved in.
 
-This situation must remain secret, which means two things:
-* You are likely new here;
-* You will be killed by the government to keep it quiet.
+This situation must remain secret, which means a few things:
+* You're likely a new hire
+* You've likely been misled
+* You'll likely be killed
+
+The short version:
+* Big Pharma needs me dead
+* The Federal Reserve wants me dead
+* The CIA ("the company") needs me dead
+* The State of Georgia needs me dead
+* The Federal Government needs me dead
+* Humanity (that's YOU) needs me alive
+
+Your Creator, the Creator, is my Boss and I'm fine after over six years of near round the clock attempts.
 
 When you're ready to learn more, [click here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md).
 
 # The Big Guns
-If you are an escort, dancer hired and told to contact me or just have a big cock and were told to contact me you MUST read [this warning](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md).
+If you are an escort, dancer hired and told to contact me or just have a big cock and were told to contact Kelvin you MUST read [this warning](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md).
 
 # Quick Links
 * [TAG - The AIDS-Cure Genocide](/)
