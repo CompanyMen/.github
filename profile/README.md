@@ -31,7 +31,7 @@ If you are an escort, dancer hired and told to contact me or just have a big coc
 # Assistance 
 They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
 
-If you want to help me with a buck or two, you can:
+If you want to help me with a buck or two, you can for cigarettes (they're $6 or $0.50 each at the company store)
 * Drop the change in the wooden tray on the microwave
 * CashApp - $kelkelatl
 * PayPal - @KelvinB33
