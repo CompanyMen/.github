@@ -27,3 +27,12 @@ If you are an escort, dancer hired and told to contact me or just have a big coc
      - [40th Pastoral Anniversary](/MCMBCI)
 * [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
 * [Madonna and the Impersonation](/hotels/Celebrity)
+
+# Assistance 
+They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
+
+If you want to help me with a buck or two, you can:
+* Drop the change in the wooden tray on the microwave
+* CashApp - $kelkelatl
+* PayPal - @KelvinB33
+* Venmo - @suitcasewatch
