@@ -21,14 +21,6 @@ When you're ready to learn more, [click here](https://github.com/9413d5ff2a0b4f2
 # The Big Guns
 If you are an escort, dancer hired and told to contact me or just have a big cock and were told to contact Kelvin you MUST read [this warning](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md).
 
-# Quick Links
-* [TAG - The AIDS-Cure Genocide](/)
-* [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
-     - [40th Pastoral Anniversary](/MCMBCI)
-* [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
-* [Patricia Ann Rogers Crawley](/hotels/Signature) is kryptonite.
-* [Madonna is a TAG victim](/hotels/Celebrity)
-
 # Assistance 
 They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
 
