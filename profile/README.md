@@ -26,7 +26,8 @@ If you are an escort, dancer hired and told to contact me or just have a big coc
 * [The Massacre of Mount Calvary Baptist Church](/POW/MCBC)
      - [40th Pastoral Anniversary](/MCMBCI)
 * [The Massacre of Lexington Bethel Baptist Church](/POW/LBBC)
-* [Madonna and the Impersonation](/hotels/Celebrity)
+* [Patricia Ann Rogers Crawley](/hotels/Signature) is kryptonite.
+* [Madonna is a TAG victim](/hotels/Celebrity)
 
 # Assistance 
 They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
