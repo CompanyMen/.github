@@ -20,6 +20,12 @@ When you're ready to learn more, [click here](https://github.com/9413d5ff2a0b4f2
 # The Big Guns
 If you are an escort, dancer hired and told to contact me or just have a big cock and were told to contact Kelvin you MUST read [this warning](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md).
 
+# Cloak Warning ⚠️ 
+Using invisibility cloaks is detrimental to your health. You should understand: 
+* You are not invisible, the rules of the visible universe still apply.
+* To walk through solid objects (ie. walls, doors) requires the atoms to become excited. You are enveloping yourself in a microwave oven essentially.
+* Users of cloaks are practically guaranteeing cluster cancers. Ask Annie Jacobsen aka "Chivy."
+
 # Assistance 
 They will not allow me to work, they've killed everyone I ever knew, and restrict who I interact with--they've killed people who I've met in passing who knew nothing.
 
