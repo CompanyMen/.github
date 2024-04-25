@@ -1,9 +1,9 @@
 # Company Men
-This is a page intended to educate you about a National Security incident that you're now undoubtedly involved in.
+This is a page is for all of the "company men" who either enter my apartment cloaked, visit socially, or contact me. It is intended to educate you about a National Security incident that you're now undoubtedly involved in.
 
 This situation must remain secret, which means a few things:
 * You've likely been misled
-* You'll going to be killed
+* You're going to be killed (by them)
 
 The short version:
 * Big Pharma needs me dead
