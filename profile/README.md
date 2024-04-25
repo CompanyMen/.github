@@ -17,6 +17,6 @@ Your Creator, the Creator, is my Boss and I'm fine after over six years of near 
 
 When you're ready to learn more, [click here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md).
 
-# The Big Guns
+# Escorts, etc.
 If you are an escort, dancer hired and told to contact me or just have a big cock and were told to contact Kelvin you MUST read [this warning](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/EscortWarning.md).
 
