@@ -2,7 +2,7 @@
 
 We're glad you've taken the time to become informed. Whether you're working for the CIA, an agent of the federal government, state of Georgia, a member of the military, a "company man" or someone else, there's a lot of valuable and possibly life-saving information inside. 
 
-If you are CIA, Company, FBI, DEA, or military... [click here]
+You've been lied to, now learn the truth... [click here](https://github.com/9413d5ff2a0b4f237a264010b65350e7/TAG/blob/master/PHB33/README.md)
 
 ## Team 'Murica
 ![Team Murica](https://github.com/CompanyMen/.github/assets/159488374/5f4083c8-0596-4538-a70e-ac660b5b190d)
