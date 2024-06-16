@@ -2,7 +2,7 @@
 
 We're glad you've taken the time to become informed. Whether you're working for the CIA, an agent of the federal government, state of Georgia, a member of the military, a "company man" or someone else, there's a lot of valuable and possibly life-saving information inside. 
 
-You've been lied to, now learn the truth... [click here](https://github.com/TAGIsNoGame/TAG/blob/master/a4chive/PHB33/README.md)
+You've been lied to, now learn the truth... [click here](https://github.com/nameless-and-blameless/TAG/blob/master/archive/PHB33/README.md)
 
 From the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/):
 * [1,000+ massacred in Chattanooga church on Mother's Day](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
