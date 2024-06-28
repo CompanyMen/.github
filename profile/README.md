@@ -4,6 +4,7 @@ We're glad you've taken the time to become informed. Whether you're working for 
 
 [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/):
 * [1,000+ massacred in Chattanooga church on Mother's Day (white congregation)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
+* [The Judgment of Satan - Donald J. Trump](https://github.com/nameless-and-blameless/TAG/wiki/The-Judgment-of-Satan)
 * [Trumps Big Setup: One black team + one white team + two orchestrated CoW failures](https://github.com/nameless-and-blameless/TAG/wiki/_BIGSETUP)
 
 ## Endangered Escorts
