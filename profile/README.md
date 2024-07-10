@@ -1,5 +1,5 @@
 > [!WARNING]
-> Wed July 10, 2024 - The Creator has advised that the current plan is to execute all personnel today. The people to who are supposed to carry out that order are likely lotal Trump supporters. They have utilized this once before to kill armed operatives after they executed inmate workers, the Trump operatives surprised them.
+> Wed July 10, 2024 - The Creator has advised that the current plan is to execute all personnel today--that means you (if you're on the job at a church). The people to who are supposed to carry out that order are likely lotal Trump supporters. They have utilized this once before to kill armed operatives after they executed inmate workers, the Trump operatives surprised them.
 Please tell others, and just abandon the operation, these are always innocent people coming to a loved-one's funeral. This **is a genocide** and its a completely unfair scenario for a mourner. You all are the instrumental in stopping this genocide. Please learn more about what's going on, they're not being honest with you. 
 
 # Welcome
