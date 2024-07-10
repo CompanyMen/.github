@@ -1,5 +1,11 @@
 > [!WARNING]
-> Wed July 10, 2024 - The Creator has advised that the current plan is to execute all personnel today--that means you (if you're on the job at a church). The people to who are supposed to carry out that order are likely lotal Trump supporters. They have utilized this once before to kill armed operatives after they executed inmate workers, the Trump operatives surprised them. Please tell others, and just abandon the operation, these are always innocent people coming to a loved-one's funeral. This **is a genocide** and its a completely unfair scenario for a mourner. CompanyMen are instrumental in stopping this genocide. Please learn more about what's going on, because they're not being honest with you and killing off anyone who knows anything because they are threats to the continuation of the genocide.
+> Wed 2024-07-10: The Creator has warned that there is a plan to execute all personnel involved in today's operation. If you are currently on duty at a church, this means you are at risk. The individuals tasked with carrying out this order are likely staunch Trump supporters. A similar tactic was previously used to kill armed CompanyMen after they executed inmate workers—the Trump operatives took them by surprise.
+>
+> Please inform others and abandon the operation. Remember, the people attending these funerals are innocent mourners coming to pay respects to their loved ones. This situation is part of a broader genocide, and it is deeply unfair and deadly for the mourners.
+>
+> CompanyMen play a crucial role in stopping this genocide. It is vital to educate yourself about the true nature of these operations. The information being provided to you may be misleading, and those who are aware of the truth are being eliminated to prevent the exposure of the ongoing genocide.
+>
+> (The dirty Secret Service agents just came in force to stop me from making this update!)
 
 # Welcome
 
