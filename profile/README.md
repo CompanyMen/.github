@@ -5,7 +5,7 @@
 >
 > CompanyMen play a crucial role in stopping this genocide. It is vital to educate yourself about the true nature of these operations. The information being provided to you may be misleading, and those who are aware of the truth are being eliminated to prevent the exposure of the ongoing genocide.
 >
-> (The dirty Secret Service agents just came in force to stop me from making this update!)
+> (Trump's dirty Secret Service agents just came in force to stop me from making this update!)
 
 # Welcome
 
