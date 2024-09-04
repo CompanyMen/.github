@@ -1,11 +1,5 @@
 > [!WARNING]
-> Wed 2024-07-10: The Creator has warned that there is a plan to execute all personnel involved in today's operation. If you are currently on duty at a church, this means you are at risk. The individuals tasked with carrying out this order are likely staunch Trump supporters. A similar tactic was previously used to kill armed CompanyMen after they executed inmate workers—the Trump operatives took them by surprise.
->
-> Please inform others and abandon the operation. Remember, the people attending these funerals are innocent mourners coming to pay respects to their loved ones. This situation is part of a broader genocide, and it is deeply unfair and deadly for the mourners.
->
-> CompanyMen play a crucial role in stopping this genocide. It is vital to educate yourself about the true nature of these operations. The information being provided to you may be misleading, and those who are aware of the truth are being eliminated to prevent the exposure of the ongoing genocide.
->
-> (Trump's dirty Secret Service agents just came in force to stop me from making this update!)
+> His servants have learned of several CIA operatives that have been eliminated aa the agency attempts to further hide its atrocities. We urge everyone to be vigilant and stay safe.
 
 # Welcome
 
