@@ -9,9 +9,5 @@ This organization is administered by the Creator's two servants as part of the "
 
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
-## Quick Links
-* [1,000+ massacred in Chattanooga church on Mother's Day (white congregation)](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
-
-## Endangered Escorts
-If you know of an escort, dancer or hired for their endowment and brought to Atlanta please direct them to [https://github.com/RentedMen](https://github.com/RentedMen) at once, it may save their lives.  If anyone knows someone that has went missing since 2018 that matches the description (anywhere in the US) please forward them the same link.
-
+* [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly black congregation, on May 12, 2024 that left more than 125 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
+* [The Massacre at Hickory Valley Christian Church in Chattanooga, TN, a predominantly white congregation, on May 12, 2024 that left more than 1,000 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
