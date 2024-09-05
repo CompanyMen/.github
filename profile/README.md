@@ -9,6 +9,6 @@ This organization is administered by the Creator's two servants as part of the "
 
 Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki/), your essential resource for learning about TAG-related activities.
 
-* [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly black congregation, on May 12, 2024 that left more than 125 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
+* [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly black congregation, on May 12, 2024 that left 127 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
 * [The Massacre at Hickory Valley Christian Church in Chattanooga, TN, a predominantly white congregation, on May 12, 2024 that left more than 1,000 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 * [The Creator's Statement on Crimes (during TAG)](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
