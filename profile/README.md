@@ -14,3 +14,6 @@ Please explore the [TAG Wiki](https://github.com/nameless-and-blameless/TAG/wiki
 * [The Massacre at Mount Calvary Baptist Church in Lexington, KY, a predominantly black congregation, on May 12, 2024 that left 127 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Mount-Calvary-Baptist-Church)
 * [The Massacre at Hickory Valley Christian Church in Chattanooga, TN, a predominantly white congregation, on May 12, 2024 that left more than 1,000 dead.](https://github.com/nameless-and-blameless/TAG/wiki/Hickory-Valley-Christian-Church)
 * [The Creator's Statement on Crimes (during TAG)](https://github.com/nameless-and-blameless/TAG/wiki/Statement-on-Crimes)
+
+> [!TIP]
+> We recommend visiting https://github.com/StopTAG for the latest information. This page may not be updated in the future.
