@@ -1,5 +1,5 @@
 > [!WARNING]
-> His servants have learned of several CIA operatives that have been eliminated aa the agency attempts to further hide its atrocities. We urge everyone to be vigilant and stay safe.
+> The Creator has advised that President Biden has ordered the US Secret Service to eliminate most "Company Men" who have worked in Kentucky or Tennessee recently due to an incident on Friday 13, 2024 in Chattanooga at a phantom funeral that has already caused the "curtain to fall with the crumbling wall" ("The Sound and The Fury" by Vandaveer). 
 
 # **Welcome to CompanyMen**
 
